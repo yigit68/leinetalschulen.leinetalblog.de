@@ -1,1 +1,1 @@
-https://leinetalblog.leinetalschulen.de/index.html
+https://leinetalblog.leinetalschulen.de
